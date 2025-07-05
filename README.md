@@ -14,6 +14,6 @@
 平台还注重隐私保护，采用HTTPS加密技术，保障用户的安全。简洁的界面和智能推荐系统帮助用户快速找到感兴趣的影片。
 选择这些平台，你可以随时随地畅享免费的日本AV影片，无广告、免注册、高清流畅，尽享纯净观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z10 ）</span>
 
 
